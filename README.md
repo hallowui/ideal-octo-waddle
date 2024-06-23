@@ -1,2 +1,2 @@
 # ideal-octo-waddle
-Great repository names are short and memorable. Need inspiration? How about  ideal-octo-waddle ?
+No way buddy just suggested me that name ill take it 
